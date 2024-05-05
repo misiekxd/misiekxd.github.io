@@ -1,2 +1,2 @@
-# ur.com
-#UNDER CONSTRUCTION
+# szympanszpojeb.github.io
+
